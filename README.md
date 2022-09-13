@@ -41,9 +41,9 @@
 
 <br>
 
-- QQ: 784958034
-- Wechat: f784958034
-- Email: fmw19990718@qq.com
+- QQ: 2069192151
+- WeChat：
+- Email: 2069192151@qq.com
 - `Please make a note or I may ignore your request(请做好备注，否则我可能将忽视您的请求)`
 
 </details>
